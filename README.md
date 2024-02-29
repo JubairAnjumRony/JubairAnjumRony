@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **Problem Solving, Web Development.**
 
-- 📫 How to reach me **rony.ict.iu@gmail.com,ronyislam@ieee,org**
+- 📫 How to reach me **rony.ict.iu@gmail.com,ronyislam@ieee.org**
 
 - ⚡ Fun fact **I am a fast learner and ready to learn.**
 
